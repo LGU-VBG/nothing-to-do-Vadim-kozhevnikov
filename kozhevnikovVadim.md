@@ -5,5 +5,5 @@
 4. Выйди из магазина
 5. Открой пачку
    ## Приятного аппетита
-
+[Ловите ссылку на кузю](https://5ka.ru/product/3370312/palochki-kukuruznye-kuzya-lakomkin-sladkie-g/)
  
